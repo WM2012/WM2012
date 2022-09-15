@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @WM2012
+- 👋 Hi, I’m William
 - 👀 I’m interested in many things tbh so have a look around.
 - 🌱 I’m currently learning everthing I can before my time is up.
 - 💞️ I’m looking to collaborate on anything that intests me at the time.
